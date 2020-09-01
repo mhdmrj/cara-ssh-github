@@ -4,4 +4,3 @@ Bila dikehendaki, saya bersedia memenuhi panggilan Bapak/Ibu untuk dites dan diw
 
 ucapkan banyak terima kasih.
 
-Tester
